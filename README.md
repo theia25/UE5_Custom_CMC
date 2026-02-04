@@ -3,3 +3,5 @@
 
 ## 학습 링크
 https://youtu.be/dOkuIvKCvpg?si=RGd_nN4qtO5KpREf
+
+<img width="878" height="1637" alt="image" src="https://github.com/user-attachments/assets/9b72ab80-d13b-4b51-877a-739457ce5be5" />
